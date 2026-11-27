@@ -1,0 +1,8 @@
+# VERTEX XITER
+
+```json
+dont change credit
+POWERED BY : ERROREXE
+# CHANNEL : DISCORD/GG/VERTEX XITERS
+
+
